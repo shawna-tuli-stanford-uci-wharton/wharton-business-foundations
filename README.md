@@ -4,7 +4,7 @@
 
 • Shawna Tuli 2022 Wharton Certificate in Introduction to Financial Accounting
 
-• Shawna Tuli 2022 Wharton Certificate in Introduction to Marketing
+• [Shawna Tuli 2022 Wharton Certificate in Introduction to Marketing](https://coursera.org/share/3ec7fa70ecda90ca7a86f6e7e1e50a67)
 
 • Shawna Tuli 2022 Wharton Certificate in Introduction to Operations Management
 
